@@ -3,9 +3,13 @@
 ####
 👋 Hey there! 🚀 I'm currently immersed in diving into the exciting world of Cross-Platform technologies. I'm passionate about helping others, collaborating, and crafting awesome things together.
 
+
 💡 If you're curious about Unity or want to chat, I'm your go-to person! Feel free to reach out to me.
 
-. Let's connect and bring some ideas to life!🌟
+
+Let's connect and bring some ideas to life!🌟
+
+
 
 🔥 BANKAI
 
